@@ -1,1 +1,1 @@
-Discussion notes -- rough sketches of content
+Discussion notes -- rough sketches of content.
